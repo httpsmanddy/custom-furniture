@@ -21,5 +21,5 @@ com esse projeto fui capaz de aprender:
 
 ## Feedback
 
-Se você tiver algum feedback, por favor nos deixe saber por meio de amandashuca@gmail.com.
+Se você tiver algum feedback, por favor nos deixe saber por meio de amandashuca@gmail.com
 
